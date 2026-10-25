@@ -1,2 +1,0 @@
-# SHRI-SHYAM-CSC
-CSC 
